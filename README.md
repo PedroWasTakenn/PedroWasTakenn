@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Pedro
+- 👀 I’m interested in Games
+- 🌱 I’m currently learning How To Develop Progams
+- 📫 How to reach me pedro12159com@gmail.com Or pedro_gaming1235@outlook.com
